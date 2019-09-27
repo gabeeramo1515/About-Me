@@ -22,4 +22,18 @@ I hold family very close to me. I have a little brother who had just turned four
 - Long walks on the beach
 - Playing videogames on my computer
 - Drawing
-- I dont have many hobbies I can think of :)
+- Computer Thingies
+- [I've been watching 'Pawn Stars' clips for the past week](https://www.youtube.com/channel/UCmyjVwYZbp5YPYTUyeopO2g)
+
+# Skills
+
+- I can type without looking at the keyboard or using the ridges.
+- English
+- Also computer thingies
+
+# Favorite Websites/Programs
+
+- [Steam](https://store.steampowered.com/)
+- [Discord](https://discordapp.com)
+- [Spotify](https://www.spotify.com/us/)
+- [Funimation](https://funimation.com)
