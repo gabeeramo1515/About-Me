@@ -22,14 +22,14 @@ I hold family very close to me. I have a little brother who had just turned four
 - Long walks on the beach
 - Playing videogames on my computer
 - Drawing
-- Computer Thingies
+- Computer Things
 - [I've been watching 'Pawn Stars' clips for the past week](https://www.youtube.com/channel/UCmyjVwYZbp5YPYTUyeopO2g)
 
 # Skills
 
 - I can type without looking at the keyboard or using the ridges.
 - English
-- Also computer thingies
+- Also computer things
 
 # Favorite Websites/Programs
 
